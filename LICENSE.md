@@ -1,4 +1,4 @@
-# 
+# Ligero Reaper preajustes para Mac OS | Personalizado Reaper preajustes para PC Windows. Con expresiones y transmisión en vivo — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
